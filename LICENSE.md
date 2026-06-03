@@ -1,4 +1,4 @@
-# 
+# Exclusivo low-frequency trading bot extensiones para Mac OS | VIP low-frequency trading bot extensiones para PC Windows. Con monitoreo de baja frecuencia y análisis de datos históricos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
